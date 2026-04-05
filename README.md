@@ -47,7 +47,7 @@ We may update this privacy policy from time to time. The "Last Updated" date at 
 
 ## Contact
 
-If you have questions about this privacy policy, please contact: ed.mcfadden@gmail.com
+If you have questions about this privacy policy, please contact: edmcfadden7@icloud.com
 
 ## Consent
 
