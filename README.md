@@ -6,7 +6,7 @@ Discover your photos from this day in history!
 
 ## Overview
 
-Your Daily Park ("the App") is committed to protecting your privacy. This privacy policy explains what information we collect, how we use it, and your rights regarding your data.
+Daily Nostalgia ("the App") is committed to protecting your privacy. This privacy policy explains that no information is collected by the app.
 
 
 ## Information We Do NOT Collect
